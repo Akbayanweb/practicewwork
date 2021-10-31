@@ -1,0 +1,2 @@
+# practicewwork
+Baibalaeva Umirbek
